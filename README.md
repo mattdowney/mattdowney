@@ -20,6 +20,7 @@ For more than a decade, I ran [45royale](https://45royale.com/)—a digital desi
 Now, I teach, tinker, and build products for myself and my friends.
 
 [My personal website](https://mattdowney.com)<br />
+[@mattdowney on Threads](https://www.threads.net/@mattdowney)<br />
 [@mattdowney on 𝕏](https://x.com/mattdowney)
 
 ✌️
